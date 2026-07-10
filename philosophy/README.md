@@ -1,0 +1,1 @@
+talking about philosophy, at a very basic level, like just listening to podcasts level.
